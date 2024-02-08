@@ -2,7 +2,7 @@ My name is Hassan Coulibaly- 👋 Hi, I’m @HassanCoulibaly
 - 👀 I’m interested in Computer Science, Artificial Intelligence, Software Engineering 
 - 🌱 I’m currently learning Introduction to Robotics
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me fcoulibaly@student.gsu.edu 
+- 📫 How to reach me fcoulibaly@student.gsu.edu / 678-873-0953
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I like Mangas, Music, Anime, Tech, Coding.
 
